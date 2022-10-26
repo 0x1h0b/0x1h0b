@@ -7,7 +7,7 @@ I am a quick learner with excellent time management and strong problem-solving s
 <br><br>
 - 📫 My email : **himanshubag12@gmail.com**
 
-- 📄 My Resume : [Resume (Google-drive-link)](https://drive.google.com/file/d/1bNI-7N6HW3gzCabE827VHeyIOVRg-Go3/view)
+- 📄 My Resume : [Resume (Google-drive-link)](https://drive.google.com/file/d/16uMmmAmQ6sOSRYb5HW52TukiRE6SjQSo/view?usp=sharing)
 
 <br><br>
 
