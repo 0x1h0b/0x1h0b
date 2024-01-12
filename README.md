@@ -34,7 +34,7 @@
 ###
 <br>
 
-📄 [Resume (google drive)](https://drive.google.com/file/d/1y9Drz8f_06q1WC7MQnz4HG5sKPrEjOdz/view?usp=sharing)
+📄 [Resume (google drive)](https://drive.google.com/file/d/1NTMQ-rqQzwcGGGV5VuwX5ZPydg35hjep/view?usp=sharing)
 
 <br><br>
 
